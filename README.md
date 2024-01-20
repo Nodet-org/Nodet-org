@@ -1,1 +1,1 @@
-# 👀 NODET is an Organization founded a year ago 🌱
+# 👀 NODET is an Organization founded in 2020 🌱
